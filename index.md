@@ -1,4 +1,11 @@
 ---
-title: Welcome to my blog
+title: Welcome to my exploration of yarn crafts, around and about Yorkshire
 ---
 
+I've been interested in knitting, sewing and any crafts I could get my hands on since I was very small.
+Recently, I've been increasingly interested in crafts with a regional focus, in the glorious county I now get to call home.
+
+I love how the evolution of different crafts varies across the region, how different yarns enable different types of crafts, and all of the winding stories that go along with them all. Here's a corner of the internet where I hope to bring some of those ideas as I explore my way along.
+
+Happy knitting,
+A.
